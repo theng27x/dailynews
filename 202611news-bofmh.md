@@ -8,11 +8,11 @@
 
 ### [财经]司法部、民政部就《基金会管理条例》修订答记者问11-10 17:51
 
-来源：www.haijiao-ij.cn
+来源：haijiao-ij.cn
 
 ### [社会]成都航空口岸2026年出入境人员突破600万人次11-11 15:59
 
-来源：<code>https://www.huangguoapp-kg.cn</code>
+来源：huangguoapp-kg.cn
 
 ### [时政]今天，祝你生日快乐！11-11 07:00
 
