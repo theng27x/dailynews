@@ -1,417 +1,413 @@
-﻿# 今日热点快报NEWS Builders Digest 
+# 今日热点快报NEWS Builders Digest 
 
-*更新时间：2026年11月11日  23时52分41秒*
+*更新时间：2026年11月12日  00时18分18秒*
 
 ---
 
 
 
-### [财经]11月11日央行开展1870亿元隔夜逆回购操作11-11 09:32
+### [社会]厦金大桥（厦门段）海上主线桥贯通11-10 18:40
 
-来源：https://<area>www<area>.duanju-k.cn
+来源：`https://www.duanju-k.cn`   `https://www.duanju-k.cn`
 
-### [财经]今年前10月湖北多式联运进出口货物13.2万吨11-10 17:20
+### [视频]青海：我国西北地区海拔最高抽水蓄能电站开工11-11 10:37
 
-来源：duanju-j.cn
+来源：https://<area>www<area>.duanju-k.cn   https://<area>www<area>.duanju-k.cn
 
-### [视频]外企加仓中国，看中了什么？11-10 17:20
+### [国际]靖国神社“秘录”公开，戳穿日本右翼的隐秘算计（环球走笔）11-11 16:41
 
+来源：`https://www.duanju-j.cn`   `https://www.duanju-j.cn`
 
-来源：lizhi-w.cn
+### [视频]加拿大总理称中国等国家不应干预加拿大内政 外交部：中方从来没有兴趣11-11 16:31
 
+来源：https://<area>www<area>.duanju-j.cn   https://<area>www<area>.duanju-j.cn
 
+### [社会]应急管理部公布一批粉尘涉爆领域执法典型案例11-11 12:02
 
+来源：`https://www.lizhi-w.cn`   `https://www.lizhi-w.cn`
 
-### [图片]以味为桥 80名厨师烹制西部陆海新通道沿线美食11-10 22:17
+### [文化]报告：演艺从业者多元路径参与公益11-10 15:32
 
-来源：91video-o.cn
+来源：https://<area>www<area>.lizhi-w.cn   https://<area>www<area>.lizhi-w.cn
 
-### [社会]广西将加快推动自然灾害治理向事前预防转型11-11 09:54
+### [健康]“只吃粗粮等于健康”盛行网络 真的如此吗？11-11 07:48
 
-来源：51aiduanju-n.cn
-
-### [财经]许宁宁：前十月中国东盟贸易增速领跑，RCEP红利持续放大11-10 18:35
-
-来源：mandoumanju-e.cn
-
-### [视频]北方件杂货枢纽升级 烟台港年发运量突破2000万吨11-11 15:53
-
-来源：chengguo-v.cn
-
-### [社会]一张网、一张图、一平台：山西为治水兴水节水装“智慧大脑”11-10 20:54
-
-来源：renrenduanju-y.cn
-
-### [财经]打造山岳实景试验场 泰山将免费开放机器人训练测试场景11-10 19:35
-
-来源：zhenren-w.cn
-
-### [文化]全息科技+实景演绎 千年包公文化谋新出海11-10 17:22
-
-来源：aiduanju-z.cn
-
-### [时政]星云星座计划在合肥发布 国产太空算力网建设提速11-10 13:19
-
-来源：aiduanju-j.cn
-
-### [财经]A股收评：超3500只个股飘红，三大指数集体收涨11-11 15:58
-
-来源：duanju-x.cn
-
-### [社会]多地车主收到“车辆召回”短信 确有其事吗？11-11 07:53
-
-来源：duanju-d.cn
-
-### [国际]与世界共享机遇：进博会是中国坚持“开门发展”的生动注脚 | 新漫评11-10 14:22
-
-来源：mianfei-v.cn
-
-### [视频]海关总署：我国外贸“朋友圈”持续扩大11-11 10:22
-
-来源：mamaduanju-k.cn
-
-### [视频]北大台湾学生：了解红军长征让我更加珍惜现在的生活11-10 12:19
-
-来源：mama-f.cn
-
-### [视频]国家发展改革委社会发展司副司长黄玮茹：努力解决好群众出院康复的操心事、烦心事11-10 17:19
-
-来源：mamaduanju-xs.cn
-
-### [视频]重庆两江新区力争2030年GDP实现8000亿元11-11 08:38
-
-来源：mmduanju-ai.cn
-
-### [财经]财政部在加拿大成功发行人民币绿色主权债券11-11 17:56
-
-来源：mitao-e.cn
-
-### [财经]宁夏农食产品畅销90个国家和地区 前三季度出口19.9亿元11-10 18:43
-
-来源：huang-guo-e.cn
-
-### [财经]智能家居产业繁华之下有隐忧：互联互通何时能打通？11-10 15:13
-
-来源：miyouduanju-l.cn
-
-### [湾区]访清华大学教授史安斌：中国短剧“霸总”出海背后是全球共创11-10 20:13
-
-来源：qiaqia-t.cn
-
-### [国际]俄美乌时隔9个月再谈 欧洲争取上桌 俄乌互袭不止11-11 06:50
-
-来源：huangfeng-w.cn
-
-### [社会]未来三天北京晴天持续昼夜温差可达15℃ 扩散条件逐渐转差11-11 08:54
-
-来源：mama-duanju1.cn
-
-### [时政]加拿大总理称中国等国家不应干预加拿大内政 外交部：中方从来没有兴趣11-11 15:30
-
-来源：tangguo-a.cn
-
-### [健康]四部门发文：加强创新药安全合理配备使用11-10 12:41
-
-来源：tangxin-g.cn
-
-### [视频]跨越数十载无人征程 智护山河贺空军77载荣光11-10 21:53
-
-来源：51duanju-k.cn
-
-### [一带一路]国家发改委：深入实施共建“一带一路”科技创新行动计划11-11 11:32
-
-来源：yeguo-q.cn
-
-### [国际]委内瑞拉修法向私人开放电力领域11-11 13:15
-
-来源：mangguo-u.cn
-
-### [视频]于和伟为还原毛主席形象减重15斤：上山的时候都没有力气了11-10 12:21
-
-来源：guoguo-w.cn
-
-### [文化]江西生态环境厅生态环境监察专员杨鹏：从千年窑火中读懂景德镇实践的生态智慧11-10 20:33
-
-来源：jiaoguo-e.cn
-
-### [财经]东方雨虹董事长李卫国：不待万全之策，以试错积蓄胜势，以迭代奔赴新高度11-11 14:11
-
-来源：mamadj-k.cn
-
-### [视频]东黑冠长臂猿一度被认为已灭绝，如今中越两国联手守护的这一物种已有11群74只11-11 17:27
-
-来源：huangdou-d.cn
-
-### [国际]南非第三季度失业率升至33.7%11-11 05:58
-
-来源：lizhi-g.cn
-
-### [时政]美国议员在黄仁勋事件后再次呼吁收紧美国输华芯片 外交部：中方立场是一贯的11-11 15:51
-
-来源：huanghuo-ai.cn
-
-### [国际]日本男子强闯中国驻日使馆案开审 检方求刑18个月拘禁刑11-10 14:51
-
-来源：huanggua-r.cn
-
-### [视频]蒙古族老板在深圳发起“蒙古袍”日 众人因热爱赴约 同歌共舞11-11 15:12
-
-来源：huakui-y.cn
-
-### [视频]世界气象组织发布报告称：超强厄尔尼诺预计将加剧全球极端天气11-10 14:34
-
-来源：jinguo-xz.cn
-
-### [财经]国家发改委5场发布会稳预期、提信心11-11 14:29
-
-来源：p-zhan-z.cn
-
-### [社会]湖南新田做强淮山特色产业 拓宽乡村富民路11-10 12:05
-
-来源：huangguo-aw.cn
-
-### [时政]王毅同斯洛伐克外长布拉纳尔会谈11-10 19:46
-
-来源：huangtao-l.cn
-
-### [国际]圭亚那“放射日”：两国三地“云”聚 中国文化亮眼11-10 12:05
-
-来源：cabian-g.cn
-
-### [视频]【理响中国·幸福有“理”】让数字技术成为服务百姓的贴心工具11-11 16:58
-
-来源：huangshe-c.cn
-
-### [文化]以时代群像书写中国法治建设历程 电视剧《重器》研讨会举行11-11 17:39
-
-来源：chengren-f.cn
-
-### [同心]王育华：一个藏族科学家，一生向着光11-10 15:13
-
-来源：mianfei-t.cn
-
-### [理论]追光，驭光，成为光（评论员观察）11-11 09:54
-
-来源：kuake-i.cn
-
-### [财经]通讯：深圳企业把中国支付标准写进世界11-11 14:39
-
-来源：tiantian-p.cn
-
-### [视频]学中文看不懂“一把把把把住了”？“汉桥”智能体一键帮你捋明白11-10 18:27
-
-来源：madouduanju-n.cn
-
-### [国际]美国防长赫格塞思举行记者会回应弹劾11-11 07:52
-
-来源：91aiduanju-t.cn
-
-### [社会]老外“逛”进博：一边Chinamaxxing，一边China Haul11-10 16:09
-
-来源：91duanju-ai.cn
-
-### [财经]2026旅游出行大会在银川开幕11-11 14:48
-
-来源：duanju85.cn
-
-### [视频]景德镇烧瓷换上智能窑炉，效率提高80%，单位能耗降了30%11-11 17:26
-
-来源：duanju40.cn
-
-### [国际]约翰·图恩连任美国参议院共和党领袖11-11 06:01
-
-来源：lizhi16.cn
-
-### [财经]中国国家知识产权局受理泰国3个地理标志产品保护申请11-10 20:13
-
-来源：91video78.cn
-
-### [一带一路]国家发改委：中欧班列已累计开行超14万列 发送货物货值超5600亿美元11-11 11:01
-
-来源：51aiduanju73.cn
-
-### [社会]哈尔滨“领跑”中国冰雪旅游过夜目的地11-11 17:29
-
-来源：madoumanju64.cn
-
-### [社会]广东海警“利剑安澜”专项行动护航湾区安全11-11 15:01
-
-来源：chengguo17.cn
-
-### [图片]山东荣成：大天鹅最佳观赏季开启11-10 20:48
-
-来源：renrenduanju77.cn
-
-### [视频]法国称欧洲将参与乌克兰问题谈判进程11-10 14:44
-
-来源：zhenrenduanju66.cn
-
-### [时政]非洲国家议员研讨班开班式举行：深化治国理政和立法经验交流11-10 13:06
-
-来源：aiduanju26.cn
-
-### [社会]总台起底MCN机构“暴力起号”套路11-11 17:41
-
-来源：aiduanju70.cn
-
-### [文化]全息科技+实景演绎 千年包公文化谋新出海11-10 17:22
-
-来源：mianfeiduanju21.cn
-
-### [图片]第39届中国电影金鸡奖红毯仪式在福建厦门举行11-10 20:48
-
-来源：duan-ju92.cn
-
-### [同心]“侨见万载 优品出海”活动走进菲律宾11-11 15:08
-
-来源：duanju100.cn
-
-### [文化]“以媒为介·共叙美好”国际媒体沙龙在新疆克拉玛依举办11-10 20:54
-
-来源：mamaduanju25.cn
-
-### [国际]印度一苹果手机代工厂发生中毒事件 3名工人死亡11-10 17:06
-
-来源：mama-duanju69.cn
-
-### [国际]一名巴基斯坦女主播遇害、丈夫被捕，巴第一夫人强烈谴责暴力行径11-11 16:07
-
-来源：mmduanju48.cn
-
-### [财经]从实验室到全链条 “新材料之王”石墨烯何以厚植云岭沃土11-10 21:59
-
-来源：mama64.cn
-
-### [国际]伊朗最高国家安全委员会秘书否认将与万斯会面11-11 13:14
-
-来源：mitao19.cn
-
-### [视频]于和伟为还原毛主席形象减重15斤：上山的时候都没有力气了11-10 12:21
-
-来源：huang-guo41.cn
-
-### [东盟]北海海关2026年度公务车辆定点维修保养服务协商谈判采购公告11-11 14:45
-
-来源：miyou80.cn
-
-### [国际]突发：菲律宾一飞机坠毁 载有6名外国公民11-10 14:08
-
-来源：qiaqiaduanju10.cn
-
-### [同心]民盟宜春市委会开展宜春市第六次党代会精神专题宣讲活动11-11 15:00
-
-来源：huangfeng82.cn
-
-### [华人]巴西：里约华社纪念孙中山先生诞辰160周年11-11 12:10
-
-来源：mamadj63.cn
-
-### [社会]三峡水运新通道前置保障工程取得新进展11-11 14:24
-
-来源：tangguo56.cn
-
-### [东盟]拱北海关技术中心2026年理化类实验室设备采购项目（重新招标）中标公告11-11 14:35
-
-来源：tangxinduanju77.cn
-
-### [文化]“以媒为介·共叙美好”国际媒体沙龙在新疆克拉玛依举办11-10 20:54
-
-来源：51duanju49.cn
-
-### [视频]海关总署：前10个月我国进口18.82万亿元11-11 10:20
-
-来源：yeguo41.cn
-
-### [时政]外交部：中美双方就两国元首年内互动安排保持着沟通11-10 15:23
-
-来源：mangguo20.cn
-
-### [同心]民盟黑龙江省委会：智力赋能黑土地保护与现代农业发展11-10 19:24
-
-来源：guoguo96.cn
-
-### [社会]福建“00后”退伍医学生半年内两次捐献 为血液病患者送去“生命种子”11-10 17:23
-
-来源：jiaoguo75.cn
-
-### [图片]惠安女服饰：藏在海边的国家级非遗11-11 17:50
-
-来源：mamaduanju43.cn
-
-### [社会]宁夏深化耕地占补平衡改革 守牢耕地保护红线11-11 14:51
-
-来源：huangdou47.cn
-
-### [视频]国家发展改革委价格司副司长张璐琴：综合施策下好保供稳价“先手棋”11-10 17:17
-
-来源：lizhiduanju39.cn
-
-### [华人]柬埔寨侨界举办纪念孙中山诞辰160周年座谈会11-11 05:56
-
-来源：huanghuo94.cn
-
-### [视频]激活冬季文旅市场 河北唐山河头老街开启免费入园11-11 14:05
-
-来源：huangguadj51.cn
-
-### [财经]焦点访谈｜“进博之约”让世界共享中国发展机遇11-11 09:59
-
-来源：huakui50.cn
-
-### [时政]中美两军举行“驼峰航线”美军援华抗日飞行员遗骸移交仪式11-10 12:07
-
-来源：jinguo25.cn
-
-### [同心]山东省各民主党派同心聚力 铺就乡村振兴之路11-10 17:06
-
-来源：p-duanju54.cn
-
-### [图片]60余只黑鹳集群过境托克托黄河湿地11-11 17:40
-
-来源：huangguo40.cn
-
-### [视频]“双11”快递坐上高铁 北京西站快件当日达武汉11-10 19:37
-
-来源：huangtao45.cn
-
-### [东盟]海口海关基础设施功能恢复项目（文昌海关）施工招标公告11-11 13:52
-
-来源：cabian83.cn
-
-### [财经]10月中国进出口总值同比增超三成11-10 13:04
-
-来源：yellowdujuan27.cn
-
-### [财经]我国将深化与共建国家绿色贸易跨境电商等合作11-11 17:56
-
-来源：chengrendramma.cn
-
-### [国际]日本检方寻求判处强闯中国使馆的自卫队官员18个月监禁11-10 21:59
-
-来源：mianfei42.cn
-
-### [文化]2026北京·天桥音乐剧年度盛典立足“聚力”促资源对接与交流11-11 12:09
-
-来源：kuake33.cn
-
-### [财经]许宁宁：前十月中国东盟贸易增速领跑，RCEP红利持续放大11-10 18:35
-
-来源：tiantian51.cn
-
-### [视频]国家发展改革委社会发展司副司长黄玮茹：努力解决好群众出院康复的操心事、烦心事11-10 17:19
-
-来源：madouduanju10.cn
-
-### [文化]《人民的名义》导演李路携新作《谷雨》交流：以人物呈现真实生活11-10 17:19
-
-来源：91aiduanju55.cn
+来源：`https://www.91video-o.cn`   `https://www.91video-o.cn`
 
 ### [国际]国际最新研究：预计2026年全球二氧化碳排放量将暂时性下降0.4%11-10 12:11
 
-来源：91duanju33.cn
+来源：https://<area>www<area>.91video-o.cn   https://<area>www<area>.91video-o.cn
+
+### [视频]从“卖出去”到“买全球、卖全球”——河南中牟两年之变11-11 16:14
+
+来源：`https://www.51aiduanju-n.cn`   `https://www.51aiduanju-n.cn`
+
+### [同心]浙江乐清民建送摄影下乡 用九年公益长跑定格“最美夕阳红”11-10 21:16
+
+来源：https://<area>www<area>.51aiduanju-n.cn   https://<area>www<area>.51aiduanju-n.cn
+
+### [财经]贵金属价格震荡加剧 中国金币集团发布风险提示11-10 13:18
+
+来源：`https://www.mandoumanju-e.cn`   `https://www.mandoumanju-e.cn`
+
+### [财经]司法部、民政部就《基金会管理条例》修订答记者问11-10 17:51
+
+来源：https://<area>www<area>.mandoumanju-e.cn   https://<area>www<area>.mandoumanju-e.cn
+
+### [国际]特朗普质疑中期选举结果 民主党人回应：迟早的事11-10 16:02
+
+来源：`https://www.chengguo-v.cn`   `https://www.chengguo-v.cn`
+
+### [国际]外媒聚焦COP31：中国积极参与全球气候治理，助力全球绿色转型11-11 16:41
+
+来源：https://<area>www<area>.chengguo-v.cn   https://<area>www<area>.chengguo-v.cn
+
+### [湾区]“文明互鉴国际论坛2026”在澳门闭幕 发布《“中国文化之窗”专版集粹》11-10 18:35
+
+来源：`https://www.renrenduanju-y.cn`   `https://www.renrenduanju-y.cn`
+
+### [时政]新版《人类遗传资源管理条例实施细则》发布11-11 11:25
+
+来源：https://<area>www<area>.renrenduanju-y.cn   https://<area>www<area>.renrenduanju-y.cn
+
+### [时政]非洲国家议员研讨班开班式举行：深化治国理政和立法经验交流11-10 13:06
+
+来源：`https://www.zhenren-w.cn`   `https://www.zhenren-w.cn`
+
+### [国际]埃及海洋研究专家：中国为非洲国家环保事业发展提供有力支持11-10 12:00
+
+来源：https://<area>www<area>.zhenren-w.cn   https://<area>www<area>.zhenren-w.cn
+
+### [时政]公安机关依法严打网络售假犯罪 公布10起典型案例11-11 10:50
+
+来源：`https://www.aiduanju-z.cn`   `https://www.aiduanju-z.cn`
+
+### [图片]第39届中国电影金鸡奖红毯仪式在福建厦门举行11-10 20:48
+
+来源：https://<area>www<area>.aiduanju-z.cn   https://<area>www<area>.aiduanju-z.cn
+
+### [视频]梁家辉首夺金鸡“影帝” 《南京照相馆》成第39届金鸡奖大赢家11-11 15:35
+
+来源：`https://www.aiduanju-j.cn`   `https://www.aiduanju-j.cn`
+
+### [国际]印尼副总统吉布兰提出辞职意向11-10 18:34
+
+来源：https://<area>www<area>.aiduanju-j.cn   https://<area>www<area>.aiduanju-j.cn
+
+### [国际]今年前10个月柬埔寨实现国际贸易总额突破634亿美元11-11 05:59
+
+来源：`https://www.duanju-x.cn`   `https://www.duanju-x.cn`
+
+### [时政]张国清在上海调研时强调 持续提升产业创新能力 更好服务支撑经济高质量发展11-10 21:08
+
+来源：https://<area>www<area>.duanju-x.cn   https://<area>www<area>.duanju-x.cn
+
+### [社会]湖南桂东：高海拔岗梅采收忙 “药香经济”助农增收11-10 18:36
+
+来源：`https://www.duanju-d.cn`   `https://www.duanju-d.cn`
+
+### [视频]云南：香格里拉迎降雪 赏雪勿忘行车安全11-11 13:17
+
+来源：https://<area>www<area>.duanju-d.cn   https://<area>www<area>.duanju-d.cn
+
+### [国际]以色列空袭加沙地带 致7人死亡11-11 15:50
+
+来源：`https://www.mianfei-v.cn`   `https://www.mianfei-v.cn`
+
+### [时政]外交部：中美双方就两国元首年内互动安排保持着沟通11-10 15:17
+
+来源：https://<area>www<area>.mianfei-v.cn   https://<area>www<area>.mianfei-v.cn
+
+### [图片]广西三江：腐竹飘香添富路11-10 19:24
+
+来源：`https://www.mamaduanju-k.cn`   `https://www.mamaduanju-k.cn`
+
+### [视频]重庆在两江四岸进行灯光秀表演 庆祝人民空军成立77周年11-11 13:39
+
+来源：https://<area>www<area>.mamaduanju-k.cn   https://<area>www<area>.mamaduanju-k.cn
+
+### [视频]民进党阻挠赴大陆纪念孙中山？孙中山家族后人回应11-11 11:44
+
+来源：`https://www.mama-f.cn`   `https://www.mama-f.cn`
+
+### [视频]北京官厅水库迎26年来最大鸟浪11-11 14:11
+
+来源：https://<area>www<area>.mama-f.cn   https://<area>www<area>.mama-f.cn
+
+### [国际]印度一列客运火车脱轨 导致部分乘客受伤11-11 16:15
+
+来源：`https://www.mamaduanju-xs.cn`   `https://www.mamaduanju-xs.cn`
+
+### [视频]东部战区空军某部主题MV：《剑出鞘》11-11 14:31
+
+来源：https://<area>www<area>.mamaduanju-xs.cn   https://<area>www<area>.mamaduanju-xs.cn
+
+### [时政]黑龙江公安织密社会面巡逻防控网 街面见警率居全国前列11-10 19:24
+
+来源：`https://www.mmduanju-ai.cn`   `https://www.mmduanju-ai.cn`
+
+### [财经]截至“十四五”末全国执业注册会计师超10万人11-11 16:01
+
+来源：https://<area>www<area>.mmduanju-ai.cn   https://<area>www<area>.mmduanju-ai.cn
+
+### [财经]五十五载脐橙香 江西信丰何以擦亮“世界橙乡”金字招牌11-11 17:40
+
+来源：`https://www.mitao-e.cn`   `https://www.mitao-e.cn`
+
+### [时政]内蒙古自治区党委政法委员会原副书记房瑞被“双开”11-10 21:43
+
+来源：https://<area>www<area>.mitao-e.cn   https://<area>www<area>.mitao-e.cn
+
+### [财经]市场监管总局就电子计价秤网络销售计量合规要求公开征求意见11-11 17:21
+
+来源：`https://www.huang-guo-e.cn`   `https://www.huang-guo-e.cn`
+
+### [财经]雄忻高铁山西段全线接触网送电完成11-11 09:44
+
+来源：https://<area>www<area>.huang-guo-e.cn   https://<area>www<area>.huang-guo-e.cn
+
+### [华人]法国文成联谊会第十五届会长团就职典礼在巴黎举行11-11 10:50
+
+来源：`https://www.miyouduanju-l.cn`   `https://www.miyouduanju-l.cn`
+
+### [财经]上海海关半年累计保障对非零关税举措享惠货物货值超43亿元11-11 14:42
+
+来源：https://<area>www<area>.miyouduanju-l.cn   https://<area>www<area>.miyouduanju-l.cn
+
+### [健康]“只吃粗粮等于健康”盛行网络 真的如此吗？11-11 07:48
+
+来源：`https://www.qiaqia-t.cn`   `https://www.qiaqia-t.cn`
+
+### [文化]2026北京·天桥音乐剧年度盛典立足“聚力”促资源对接与交流11-11 12:09
+
+来源：https://<area>www<area>.qiaqia-t.cn   https://<area>www<area>.qiaqia-t.cn
+
+### [一带一路]国家发改委：中欧班列已累计开行超14万列 发送货物货值超5600亿美元11-11 11:01
+
+来源：`https://www.huangfeng-w.cn`   `https://www.huangfeng-w.cn`
+
+### [时政]多部门联动织密短缺药“保障网”11-10 21:47
+
+来源：https://<area>www<area>.huangfeng-w.cn   https://<area>www<area>.huangfeng-w.cn
+
+### [时政]陈永奇任江西省人民政府副省长、代理省长职务11-11 10:11
+
+来源：`https://www.mama-duanju1.cn`   `https://www.mama-duanju1.cn`
+
+### [财经]这届短剧，开始让观众想“找知识”了11-10 16:31
+
+来源：https://<area>www<area>.mama-duanju1.cn   https://<area>www<area>.mama-duanju1.cn
+
+### [视频]【潮起南天】孙中山借钱开办的中西药局，蕴藏着怎样的“医国”之心？11-11 09:37
+
+来源：`https://www.tangguo-a.cn`   `https://www.tangguo-a.cn`
+
+### [财经]高技术产品成出口新名片 中国外贸的APEC底色更浓11-11 16:33
+
+来源：https://<area>www<area>.tangguo-a.cn   https://<area>www<area>.tangguo-a.cn
+
+### [财经]米夏埃尔·舒曼：信任是国际气候政策中的稀缺资源11-10 12:23
+
+来源：`https://www.tangxin-g.cn`   `https://www.tangxin-g.cn`
+
+### [文化]卫国战争期间白俄罗斯游击运动专题展在北京开幕11-11 14:54
+
+来源：https://<area>www<area>.tangxin-g.cn   https://<area>www<area>.tangxin-g.cn
+
+### [国际]美国10月CPI环比上涨0.4%11-11 05:57
+
+来源：`https://www.51duanju-k.cn`   `https://www.51duanju-k.cn`
+
+### [视频]为什么带多吉爸爸直播、做短视频？ “嫣然”陈院长最新回应11-10 23:27
+
+来源：https://<area>www<area>.51duanju-k.cn   https://<area>www<area>.51duanju-k.cn
+
+### [时政]我国新增3处世界地质遗产地 它们有何奥秘？11-11 14:08
+
+来源：`https://www.yeguo-q.cn`   `https://www.yeguo-q.cn`
+
+### [法治]犯罪团伙借“招聘”牟利 近90万条求职信息被卖到境外11-10 19:44
+
+来源：https://<area>www<area>.yeguo-q.cn   https://<area>www<area>.yeguo-q.cn
+
+### [财经]五十五载脐橙香 江西信丰何以擦亮“世界橙乡”金字招牌11-11 17:40
+
+来源：`https://www.mangguo-u.cn`   `https://www.mangguo-u.cn`
+
+### [财经]市场监管总局就电子计价秤网络销售计量合规要求公开征求意见11-11 17:21
+
+来源：https://<area>www<area>.mangguo-u.cn   https://<area>www<area>.mangguo-u.cn
+
+### [同心]浙江乐清民建送摄影下乡 用九年公益长跑定格“最美夕阳红”11-10 21:16
+
+来源：`https://www.guoguo-w.cn`   `https://www.guoguo-w.cn`
+
+### [时政]黄乐是否为中国公民？外交部回应11-10 15:36
+
+来源：https://<area>www<area>.guoguo-w.cn   https://<area>www<area>.guoguo-w.cn
+
+### [财经]市场监管总局部署多项举措 共建放心消费生态圈11-11 10:25
+
+来源：`https://www.jiaoguo-e.cn`   `https://www.jiaoguo-e.cn`
+
+### [财经]中国地矿领域首台全自动化钻机在川西高原投用11-10 22:02
+
+来源：https://<area>www<area>.jiaoguo-e.cn   https://<area>www<area>.jiaoguo-e.cn
+
+### [图片]上海迪士尼第三座主题酒店即将开门迎客11-10 17:44
+
+来源：`https://www.mamadj-k.cn`   `https://www.mamadj-k.cn`
+
+### [社会]湖南桂东：高海拔岗梅采收忙 “药香经济”助农增收11-10 18:36
+
+来源：https://<area>www<area>.mamadj-k.cn   https://<area>www<area>.mamadj-k.cn
+
+### [财经]（第九届进博会）进博会见证中国消费升级带来的世界机遇11-10 15:30
+
+来源：`https://www.huangdou-d.cn`   `https://www.huangdou-d.cn`
+
+### [体育]中国乒协公布混团世界杯参赛名单 王楚钦、孙颖莎等入选11-10 13:05
+
+来源：https://<area>www<area>.huangdou-d.cn   https://<area>www<area>.huangdou-d.cn
+
+### [国际]COP31谈判主席：中国“绿色红利”惠及全球 | 新闻会客厅11-11 13:32
+
+来源：`https://www.lizhi-g.cn`   `https://www.lizhi-g.cn`
+
+### [视频]“花坛藏尸案”死者儿子痛哭：想告诉妈妈 这个儿子没有白生11-10 14:55
+
+来源：https://<area>www<area>.lizhi-g.cn   https://<area>www<area>.lizhi-g.cn
+
+### [财经]（第九届进博会）进博会见证中国消费升级带来的世界机遇11-10 15:30
+
+来源：`https://www.huanghuo-ai.cn`   `https://www.huanghuo-ai.cn`
+
+### [视频]两岸游客碧云寺缅怀孙中山：秉承先生遗志 共盼民族复兴11-11 17:48
+
+来源：https://<area>www<area>.huanghuo-ai.cn   https://<area>www<area>.huanghuo-ai.cn
+
+### [财经]海南保亭：走出具有热带雨林县域特色的应对气候变化之路11-10 19:30
+
+来源：`https://www.huanggua-r.cn`   `https://www.huanggua-r.cn`
+
+### [国际]马来西亚前总理纳吉布开始居家服刑11-11 00:01
+
+来源：https://<area>www<area>.huanggua-r.cn   https://<area>www<area>.huanggua-r.cn
+
+### [同心]2026年全国重庆商会会长会议举行 张兴海呼吁擦亮“渝商”金字招牌11-10 22:01
+
+来源：`https://www.huakui-y.cn`   `https://www.huakui-y.cn`
+
+### [社会]总台起底MCN机构“暴力起号”套路11-11 17:41
+
+来源：https://<area>www<area>.huakui-y.cn   https://<area>www<area>.huakui-y.cn
+
+### [财经]单月渗透率接近八成 海南新能源汽车推广数据亮眼11-10 19:30
+
+来源：`https://www.jinguo-xz.cn`   `https://www.jinguo-xz.cn`
+
+### [视频]美术生用拼多多在农村建共享菜园11-10 19:55
+
+来源：https://<area>www<area>.jinguo-xz.cn   https://<area>www<area>.jinguo-xz.cn
+
+### [财经]上海企业海外合作联盟举办德国专场对接活动11-10 21:08
+
+来源：`https://www.p-zhan-z.cn`   `https://www.p-zhan-z.cn`
+
+### [视频]厦金大桥（厦门段）海上主线桥贯通11-10 16:53
+
+来源：https://<area>www<area>.p-zhan-z.cn   https://<area>www<area>.p-zhan-z.cn
+
+### [时政]内蒙古自治区党委金融工作委员会原副书记马保国被“双开”11-10 21:43
+
+来源：`https://www.huangguo-aw.cn`   `https://www.huangguo-aw.cn`
+
+### [社会]走访牛河梁遗址：溯源辽河文明曙光 对话五千载红山文脉11-11 15:57
+
+来源：https://<area>www<area>.huangguo-aw.cn   https://<area>www<area>.huangguo-aw.cn
+
+### [健康]医生有了AI分身，看病会不一样吗？还有哪些障碍？11-11 14:31
+
+来源：`https://www.huangtao-l.cn`   `https://www.huangtao-l.cn`
+
+### [财经]财政部：开展财会监督质效提升三年行动 全链条惩治违法违规行为11-11 16:04
+
+来源：https://<area>www<area>.huangtao-l.cn   https://<area>www<area>.huangtao-l.cn
+
+### [财经]第20届全球创业周中国站启幕 国际化能级跃升11-10 21:54
+
+来源：`https://www.cabian-g.cn`   `https://www.cabian-g.cn`
+
+### [社会]福建再添一植物新种：闽江源马兜铃11-11 11:22
+
+来源：https://<area>www<area>.cabian-g.cn   https://<area>www<area>.cabian-g.cn
+
+### [社会]赋能师生“心”力量 专家建言探索多方协同支持方式11-11 15:54
+
+来源：`https://www.huangshe-c.cn`   `https://www.huangshe-c.cn`
+
+### [华人]（第九届进博会）九年赴进博之约 归侨任美霏乐当“西语政商超级联络人”11-10 17:29
+
+来源：https://<area>www<area>.huangshe-c.cn   https://<area>www<area>.huangshe-c.cn
+
+### [健康]钱菊英教授：血脂管理进入联合治疗时代，“双基药”降脂有望实现“1+1>2”11-11 17:27
+
+来源：`https://www.chengren-f.cn`   `https://www.chengren-f.cn`
+
+### [湾区]2026年世界数码及AI排名出炉　香港三项指标摘全球第一11-11 14:52
+
+来源：https://<area>www<area>.chengren-f.cn   https://<area>www<area>.chengren-f.cn
+
+### [体育]从秦巴腹地到黄龙山麓：陕西省自行车联赛由全域覆盖走向体系跃升11-10 15:02
+
+来源：`https://www.mianfei-t.cn`   `https://www.mianfei-t.cn`
+
+### [文化]第二届全国小戏小品展演将在长沙解锁多元戏剧场景11-10 20:57
+
+来源：https://<area>www<area>.mianfei-t.cn   https://<area>www<area>.mianfei-t.cn
+
+### [图片]新一轮俄美乌三方会谈在阿联酋开始举行11-10 18:24
+
+来源：`https://www.kuake-i.cn`   `https://www.kuake-i.cn`
+
+### [财经]“效率提升达百倍” 一种“新型基础设施”来了11-11 09:58
+
+来源：https://<area>www<area>.kuake-i.cn   https://<area>www<area>.kuake-i.cn
+
+### [财经]我国将深化与共建国家绿色贸易跨境电商等合作11-11 17:56
+
+来源：`https://www.tiantian-p.cn`   `https://www.tiantian-p.cn`
+
+### [视频]哈萨克斯坦媒体人：城市间的友谊不应只停留在官方协议11-11 15:55
+
+来源：https://<area>www<area>.tiantian-p.cn   https://<area>www<area>.tiantian-p.cn
+
+### [财经]重庆两江新区三方面发力 将科创优势转化为发展动能11-10 22:01
+
+来源：`https://www.madouduanju-n.cn`   `https://www.madouduanju-n.cn`
+
+### [时政]两部门：到2030年人工智能深度融入自然资源管理全链条11-11 16:29
+
+来源：https://<area>www<area>.madouduanju-n.cn   https://<area>www<area>.madouduanju-n.cn
+
+### [视频]甘肃：智慧消防 守护莫高窟国宝安全11-11 13:21
+
+来源：`https://www.91aiduanju-t.cn`   `https://www.91aiduanju-t.cn`
+
+### [时政]旅美大熊猫“平平”“福双”正式与公众见面 外交部回应11-10 15:27
+
+来源：https://<area>www<area>.91aiduanju-t.cn   https://<area>www<area>.91aiduanju-t.cn
+
+### [社会]以味为桥 80名厨师烹制西部陆海新通道沿线美食11-10 22:00
+
+来源：`https://www.91duanju-ai.cn`   `https://www.91duanju-ai.cn`
+
+### [时政]山西将织密现代水网 破解“煤长水短”制约11-10 21:18
+
+来源：https://<area>www<area>.91duanju-ai.cn   https://<area>www<area>.91duanju-ai.cn
 
 
-*报告生产时间：2026年11月11日  23时52分41秒*
+*报告生产时间：2026年11月12日  00时18分18秒*
 
 *数据来源：新浪财经、公开媒体报道*
 
