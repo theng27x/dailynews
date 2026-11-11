@@ -12,9 +12,10 @@
 
 ### [财经]今年前10月湖北多式联运进出口货物13.2万吨11-10 17:20
 
-来源：duanju-j.cn
+来源：[duanju-j.cn](https://<!-- -->www.example.com)
 
 ### [视频]外企加仓中国，看中了什么？11-10 17:20
+https://<!-- -->www.example.com
 
 来源：lizhi-w.cn
 
