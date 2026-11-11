@@ -22,7 +22,7 @@ www<area>.example.com
 
 https://<area>www<area>.example.com
 
-<a href="https://<area>www<area>.example.com">https://<area>www<area>.example.com</a>
+<a <area>href="https://www.example.com/">https://<area>www<area>.example.com<area></a>
 
 ### [图片]以味为桥 80名厨师烹制西部陆海新通道沿线美食11-10 22:17
 
