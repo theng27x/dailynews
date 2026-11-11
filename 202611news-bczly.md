@@ -20,6 +20,8 @@ https://<!-- -->www.example.com
 来源：lizhi-w.cn
 www<area>.example.com
 
+https<area>://<area>.example.com
+
 ### [图片]以味为桥 80名厨师烹制西部陆海新通道沿线美食11-10 22:17
 
 来源：91video-o.cn
